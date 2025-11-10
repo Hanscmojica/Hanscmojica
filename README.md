@@ -59,8 +59,8 @@ I value clarity, structure, and the elegance of solving problems with simplicity
 ## 📬 Contact
 If you'd like to collaborate or discuss ideas:
 
-**Email:** *(agrega tu correo)*  
-**Location:** Veracruz, México
+**Email:** *hanscmojica@gmail.com*  
+ Location: MX
 
 ---
 
